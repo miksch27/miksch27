@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @miksch27
-- 👀 I’m interested in a lot of thinks, eg. what is the ideal presistence layer.
-- 🌱 I’m currently learning to be frugal.
-- 💞️ I’m looking to collaborate on persistens, affirmation and peace...
+- 👀 I’m interested in many topics, eg. what is the ideal powerbank or ideal presistence layer or roboter?
+- 🌱 Reserved and sustainability are my topics.
+- 💞️ I'm looking for collaborate on persistence layers, affirmation and peace!
 - 📫 You might reach me on twitter @WinaChrisu ..
 
 <!---
